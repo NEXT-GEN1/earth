@@ -1,4 +1,4 @@
-    Subhadeep Naishal
+    Subhadeep Maishal
 Indian Institute of Technology Kharagpur
     Kharagpur, West Bengal 721302
                INDIA
